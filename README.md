@@ -9,3 +9,5 @@ Una collezione di santi
     "Lei cosa ne pensa?" "Sono giapponese!"
 4. Padre Pio - Nonostante non sembri è santo!
     Padre pio appare obbligatoriamente su ogni TIR della Salerno - Reggio Calabria
+5. Paolo Miki - Un altro santo Giapponese
+    Morto crocifisso in Giappone, pensa un po'

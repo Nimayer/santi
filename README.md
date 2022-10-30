@@ -11,3 +11,5 @@ Una collezione di santi
     Padre pio appare obbligatoriamente su ogni TIR della Salerno - Reggio Calabria
 5. Paolo Miki - Un altro santo Giapponese
     Morto crocifisso in Giappone, pensa un po'
+6. San Germano di Capua - Santo del giorno 30 Ottobre
+    Pensa un po' compiamo gli anni insieme

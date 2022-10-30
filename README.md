@@ -13,3 +13,5 @@ Una collezione di santi
     Morto crocifisso in Giappone, pensa un po'
 6. San Germano di Capua - Santo del giorno 30 Ottobre
     Pensa un po' compiamo gli anni insieme
+7. San Benedetto di Hermillon - Santo protettore degli ingegneri
+    Un uomo che costruí ponti miracolosi

@@ -15,3 +15,5 @@ Una collezione di santi
     Pensa un po' compiamo gli anni insieme
 7. San Benedetto di Hermillon - Santo protettore degli ingegneri
     Un uomo che costruí ponti miracolosi
+8. San Giuseppe da Copertino - Santo protettore degli astronauti
+    Copertino non nella Silicon Valley ma in provincia di Lecce
